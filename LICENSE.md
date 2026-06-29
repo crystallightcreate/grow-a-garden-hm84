@@ -1,4 +1,4 @@
-# 
+# hidden Scripts for grow a garden is the best grow a garden Script, featuring silent aim and auto-upgrade. Safe and powerful for all your needs.
 
 
 
